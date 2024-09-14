@@ -1,5 +1,5 @@
 
-We have this laser cutter:
+We have this laser cutter inbound for delivery on 2024-09-15:
 
 - https://www.facebook.com/marketplace/item/1240469810339401
 
